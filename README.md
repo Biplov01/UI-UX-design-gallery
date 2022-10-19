@@ -1,1 +1,1 @@
-# UI-UX-design-gallery
+# UI-UX-& all-design-gallery
